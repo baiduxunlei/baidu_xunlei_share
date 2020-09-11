@@ -8,6 +8,9 @@
 <img src="https://mmbiz.qpic.cn/mmbiz_png/1T10jtIT5QxZoDuobB713dNxHZfJzaNbWdrXkOnkTWw42WtCsVgm3ZLAxvIdX1YBbs6akpjzIibQibPgPgQ1je3A/0?wx_fmt=png" />
 
 
+# 如果需要 天眼查 迅雷 百度网盘等更多高质量账号 请用qq搜索 精灵爱分享 小程序
+
+
 
 # 注意事项
 
@@ -23,6 +26,31 @@
 
 
 # 共享账号
+    9.11
+    
+    百度网盘微博登录
+
+    微博账号：13368075364   微博密码  811019
+
+    百度网盘微博登录
+
+    微博账号：18354498366  微博密码  zy095231yi
+
+    百度网盘微博登录
+
+    微博账号：15582300061  微博密码  jh316753
+
+    百度网盘邮箱登录
+
+    百度网盘：fk8049lqye253@163.com 网盘密码：kkkk3333 
+
+    密保邮箱：fk8049lqye253@163.com 邮箱密码：tpiz75rnt159
+
+    百度网盘邮箱登录
+
+    网盘账号：fnyqvt93ms54@163.com 网盘密码：dddd6666 
+
+    密保邮箱：fnyqvt93ms54@163.com 邮箱密码：rtv3122
 
     9.10
     
